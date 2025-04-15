@@ -8,4 +8,4 @@
 
 ‼️ feel free 2 int, c+h, and sit next 2 me!
 
-📢  draw on strawpage or signata, the decision is yours! ( ˶ˆᗜˆ˵ )
+📢  draw on strawpage or sign ata, the decision is yours! ( ˶ˆᗜˆ˵ )
